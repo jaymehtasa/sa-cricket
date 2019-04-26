@@ -1,4 +1,4 @@
-# How SA Cricket team what's to Play?
+# How SA Cricket team should Play?
 
 ## Daily Practice 
 
